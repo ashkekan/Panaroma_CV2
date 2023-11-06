@@ -1,1 +1,0 @@
-# Panaroma_CV2
